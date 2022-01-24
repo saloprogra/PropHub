@@ -8,5 +8,4 @@
 ![word5ok](https://user-images.githubusercontent.com/60209427/149685601-997a7a6e-2ccb-4099-8f9a-7b5a0efb692f.png)
 ![word6ok](https://user-images.githubusercontent.com/60209427/149862896-aa8fd0fe-9b5e-45e1-a208-7ce61a5def88.png)
 ![yoyo](https://user-images.githubusercontent.com/60209427/150689963-a099581f-7203-40d1-93dd-3b32d558e244.jpg)
-![okmix](https://user-images.githubusercontent.com/60209427/150708106-0e720264-956e-4ffb-87d7-ea30c38e53c3.png)
 ![okmixing](https://user-images.githubusercontent.com/60209427/150708709-51a2bbab-9363-43ad-b815-b79b18b0b39e.png)
