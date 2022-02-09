@@ -10,3 +10,4 @@
 ![yoyo](https://user-images.githubusercontent.com/60209427/150689963-a099581f-7203-40d1-93dd-3b32d558e244.jpg)
 ![okmixing](https://user-images.githubusercontent.com/60209427/150708709-51a2bbab-9363-43ad-b815-b79b18b0b39e.png)
 ![ddic](https://user-images.githubusercontent.com/60209427/151079679-adf5080a-2818-48e4-97a3-949c2989e00e.png)
+![jacktitanic](https://user-images.githubusercontent.com/60209427/153215313-7bd1e145-fa4d-4511-8561-42e09c8443cd.jpg)
