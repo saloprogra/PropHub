@@ -14,3 +14,4 @@
 ![Banner_dip267](https://user-images.githubusercontent.com/60209427/156918558-3baf0f31-0132-43e4-8d5d-9509f0601bfa.png)
 ![bannerchat](https://user-images.githubusercontent.com/60209427/165766907-38ee4dbe-c574-47b2-9997-df2d154e4bfa.png)
 ![diag](https://user-images.githubusercontent.com/60209427/165861636-9ce540a6-eb30-429c-8f54-131c2494d108.png)
+![diagolo2](https://user-images.githubusercontent.com/60209427/165863256-611f5770-7b6e-4313-9dba-821ca87e95b4.png)
