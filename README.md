@@ -16,3 +16,4 @@
 ![dialogue3](https://user-images.githubusercontent.com/60209427/165868302-c506230e-1c6a-4bd4-a803-230afacff5af.png)
 ![Banner_dip270](https://user-images.githubusercontent.com/60209427/170315540-24dd82fe-b1eb-466b-9ebb-7f603c8e4393.png)
 ![exiftool](https://user-images.githubusercontent.com/60209427/170531783-33d0e913-4b48-45a5-b532-a0d2cbe1f0be.png)
+![modelosaseguirchurn](https://user-images.githubusercontent.com/60209427/170796730-8e66e57b-41db-4ede-b521-b5aad8dc4215.png)
